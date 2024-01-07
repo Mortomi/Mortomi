@@ -1,0 +1,5 @@
+- I'm mortomi.
+- I like game development, and interesting stories.
+- Collaboration may not be my strongsuit, but I try to make everything I write legible.
+- I may be a beginner, but I learn every day. Every failure fuels you, and most important about stuff like this is that you stay determined.
+- anyway enjoy anything I might upload here.
